@@ -7,11 +7,11 @@ Back in 2011, I was small part of the Occupy Wall Street movement (occasionally 
 
 This morning, I headed over to Central, the main street through Hong Kong's financial district, to see the occupation trying to secure for Hong Kong [the democratic election they were promised in 2017](http://en.wikipedia.org/wiki/2014_Hong_Kong_electoral_reform). Walking east from the ferry terminal, the scale of the event certainly seemed like Occupy in New York -- hundreds of people, many wearing that dazed, curious smile people get when they see their fellow citizens behaving as if politics could include them. Walking uphill on Central, now turned into a political pedestrian mall, felt like a kind of elongated Zuccotti Park. 
 
+![Occupy Hong Kong on October 1] (https://github.com/cshirky/occupyhongkong/blob/master/scale2.jpg "View looking west, back from Admiralty")
+
 And then I got to the crest of the roadway, and looked down towards the Admiralty neighborhood, the moment captured in the picture above. 
 
 And I realized how wrong I was about the size. Occupy Central is absolutely massive, endless participation as far as the eye can see. (Amazement at the scale of the event seemed to be a common reaction -- my picture above includes several other people holding up their cameras at about the same spot, having had roughly the same reaction.)
-
-![Occupy Hong Kong on October 1] (https://github.com/cshirky/occupyhongkong/blob/master/scale2.jpg "View looking west, back from Admiralty")
 
 I took my kids with me, and while I have never lost my midwesterner's wonder at tall buildings and big groups, my kids have grown up in New York City and now Shanghai, so crowds don't impress them much. What they were interested in  (and what came to interest me) were the ways the occupation is adapting to the need to inhabit a two-mile stretch of asphalt 24/7. 
 
